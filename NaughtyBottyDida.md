@@ -44,3 +44,11 @@ She needs to walk each day
 Even if it is sunny or raining  
 
 
+Dida promised me 
+Never to eat junk food again  
+Since I was not happy to see Dida  
+In soooo much pain
+
+But now she is hail and heart
+And we are going out for a pizza party
+
