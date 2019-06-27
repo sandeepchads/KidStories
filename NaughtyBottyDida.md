@@ -1,4 +1,4 @@
-#Naughty Botty Dida
+# Naughty Botty Dida
 I am feeling a little sad today.  
 Dida was not feeling very well this morning.  
 She complained of some discomfort and uneasiness.  
@@ -41,6 +41,6 @@ But there is only one thing wrong
 She ate a pizza  
 And her tummy is paining  
 She needs to walk each day  
-Even if it is raining  
+Even if it is sunny or raining  
 
 
